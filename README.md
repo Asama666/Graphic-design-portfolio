@@ -1,3 +1,5 @@
 # Graphic design portfolio
--Panda Vision
--Panda Books
+-BloodLustTattooCare
+-Mausoleum Whisky Manufacture
+-Monogram
+-Nyanko Fashion
